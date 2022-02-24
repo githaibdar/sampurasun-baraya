@@ -1,6 +1,7 @@
 # sampurasun-baraya
 Ini adalah repositori pertama
-Buat coba coba aja dulu
-Siapa tau nyaman
-Kalau nyaman lanjut
-Kalau ga nyaman yah ngomong aja baik baik
+Bismillah dulu atuh dulur
+Pepatah orang sunda jaman dulu mah bilang
+"indit kudu bari cicing, lumampah ulah ngalengkah"
+Ingat dan kenali juga diri sendiri dan kemana tujuan kita, kan katanya
+"mulih ka jati, mulang ka asal"
